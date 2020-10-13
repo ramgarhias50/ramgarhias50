@@ -14,3 +14,7 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+
+[My YouTube Channel](https://www.youtube.com/channel/UCYRu-HIHkR_fKpv4IuBWwlw)
+
+[My Instagram](https://www.instagram.com/ramgarhia162/)
